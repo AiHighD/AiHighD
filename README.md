@@ -16,5 +16,4 @@ Here are some ideas to get you started:
 -->
 
 
-haha that la met moi
- cuoi cung thi ta lai ve nhu luc ban dau
+xin chao
